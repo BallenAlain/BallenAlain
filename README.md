@@ -6,9 +6,9 @@ I'm usually at the gym 🏋️‍♂️ or at home typing away 🤖
 
 ## Follow me!
 
-https://www.linkedin.com/in/alain-ballen/ 🤝
+https://www.linkedin.com/in/alain-ballen/
 
-https://www.alainballen.live/ 💬
+https://www.alainballen.live/
 
 ![](https://komarev.com/ghpvc/?username=BallenAlain&color=blueviolet)
 
