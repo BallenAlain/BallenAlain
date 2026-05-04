@@ -2,8 +2,6 @@
 
 Software engineer focused on backend development 💻
 
-Recent Graduate in Software Engineering from York University 🎓
-
 I'm usually at the gym 🏋️‍♂️ or at home typing away 🤖
 
 ## Follow me!
